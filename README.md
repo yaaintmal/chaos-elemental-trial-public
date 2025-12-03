@@ -29,6 +29,6 @@ No match: full pain. Hope you said goodbye.
 Mouse or arrow keys + Enter. Themes and fullscreen are just extra swagger.
 
 **If the site chokes:**  
-Hit refresh. If it still sulks, use the support link, grab a coffee, and try again. Real leaders don’t rage-quit.
+Hit refresh. If it still sulks, use the support link (yeah, I know there isn't even one), grab a coffee, and try again. Real leaders don’t rage-quit.
 
 Now go to `chaos.malick.wtf`, keep your Peons alive, and make the apocalypse wish it had picked another planet.
